@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning C# Language
 - 💞️ I’m looking to collaborate on Executors
 - 📫 How to reach me @GOSHBREAKER on Roblox, xonorce on Youtube
-- 😄 Pronouns: He/Him\
+- 😄 Pronouns: He/Him
